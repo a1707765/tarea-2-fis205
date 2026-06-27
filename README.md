@@ -1,1 +1,1 @@
-# tarea-2-fis205
+## partes de desarrollo estan en el pdf :)
